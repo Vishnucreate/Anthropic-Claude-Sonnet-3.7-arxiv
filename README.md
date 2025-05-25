@@ -14,6 +14,12 @@ MCP with chatbot capabilities clash of titans
 ![image](https://github.com/user-attachments/assets/13d46fa2-731e-4dc4-a4f1-b493765b3c68)
 
 
+Battle of Goats 
+
+![image](https://github.com/user-attachments/assets/07044315-7365-4e7f-95ba-2a58ac589c3c)
+
+
+
 
 
 
